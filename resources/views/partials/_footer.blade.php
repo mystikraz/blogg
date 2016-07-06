@@ -1,0 +1,1 @@
+  &copy; Rajan Tandukar All rights reserved
